@@ -1,7 +1,7 @@
 -  Naveenaa_dn
 - 👀 Artificial intelligence & IOT& Data Analysis
 - 🌱 persuing BE(ECE)
-- 💞️ 
+- 💞️ Love to execute my ideas and knowledge and talents to the best industry.
 - 📫 dnaveena229@gmail.com
 
 <!---
